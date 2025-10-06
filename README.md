@@ -1,0 +1,1 @@
+# mascot-champions-privacy
